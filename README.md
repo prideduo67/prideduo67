@@ -1,1 +1,1 @@
-[rentry](https://rentry.co/idiazuls) . Idia Shroud's #1 fan no one love him more than I do :/// #1 idia shroud fan since 2020 . Marvel Rivals diamond
+[rentry](https://rentry.co/idiazuls) (rentry better viewed on desktop/PC) . Idia Shroud's #1 fan no one love him more than I do :/// idia shroud my oshi 2020 . Marvel Rivals grandmaster
