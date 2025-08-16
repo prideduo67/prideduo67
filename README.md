@@ -1,1 +1,1 @@
-<code style="color : blue">bbb</code>
+bro bro goo goo
