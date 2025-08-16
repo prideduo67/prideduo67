@@ -1,3 +1,3 @@
 <p align="center">
-  center text
+  homosexual
 </p>
