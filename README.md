@@ -1,3 +1,1 @@
-<p align="center">
-  homosexual
-</p>
+<code style="color : blue">bbb</code>
